@@ -1,4 +1,4 @@
-# 
+# Native scalping bot for derivatives presets for Mac OS | Advanced scalping bot for derivatives presets for PC Windows. Featuring yield farming and order book analysis — optimized for maximum performance on every platform.
 
 
 
